@@ -1,4 +1,4 @@
-# Loz 'Bey V12 Level Altyapı
+# Loz 'Bey V12 Kod Sunucuları Yardım Puan Sıralaması - İstatistik
 
 Çalınması Serbesttir.
 Hak Mak Yoktur.
